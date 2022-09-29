@@ -7,3 +7,7 @@ However, what *was* specific about this cat was that it was sitting on this couc
 His owner was the same, there was nothing specific about him.
 He had a **big** house and a little garden.
 What *was* specific about the owner is that he had a cat.
+## The Cat and the dog
+One day the owner of this marvelous cat needed some change in his life. 
+The cat was not enough anymore. 
+So he just went to the pet store and bought a cute *puppy*. 
